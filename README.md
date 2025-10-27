@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## Hey ;)
+![App Screenshot](https://via.placeholder.com/468x300?text=App+Screenshot+Here)
 <!--
 **JimixxxES/JimixxxES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
