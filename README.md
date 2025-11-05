@@ -1,5 +1,5 @@
 ## Ado👑💙
-![Ado](https://media.tenor.com/yIX_27rQAIkAAAAM/ado-ado-cute.gif)
+![Ado](https://i.pinimg.com/1200x/51/b6/c8/51b6c8ae2595c709de6dcffc87f30cb7.jpg)
 <!--
 **JimixxxES/JimixxxES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
